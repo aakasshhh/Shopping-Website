@@ -54,5 +54,5 @@ Please ensure that you adhere to our code of conduct and respect the contributio
 
 
 ### Contact Information: 
-For any questions or feedback, feel free to reach out at Email: aakashjainonline18@gmail.com or linkedin: https://www.linkedin.com/in/aakash-jain-bb7336254/
+For any questions or feedback, feel free to reach out at Email: aakashjainonline18@gmail.com or linkedin: https://www.linkedin.com/in/aakash-jain-/
 
